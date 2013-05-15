@@ -1,4 +1,1 @@
-For Outplacement Firm
-=====================
-
-Fuck you!
+# 金くれ
